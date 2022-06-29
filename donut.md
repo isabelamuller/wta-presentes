@@ -1,37 +1,37 @@
 1° OPÇÃO DE MASSA
-    2 ovos
-    leite (cerca de 200 ml)
-    1 colher de sopa de margarina
-    1/2 copo de açúcar cristal
-    2 copos de farinha de trigo
-    1/2 colher de sopa de fermento
+    4 ovos
+    leite (cerca de 400 ml)
+    2 colheres de sopa de margarina
+    1 copo de açúcar cristal
+    4 copos de farinha de trigo
+    1 colher de sopa de fermento
     Doce de leite para rechear
-    1 colher de sopa de suco de limão
+    2 colheres de sopa de suco de limão
 
 Cobertura (sugestão):
-    180 g de chocolate meio amargo derretido em banho-maria
-    5 colheres de sopa de leite condensado
+    320 g de chocolate meio amargo derretido em banho-maria
+    10 colheres de sopa de leite condensado
 
 2° OPÇÃO DE MASSA
-    6 g de fermento biológico seco
-    24 g de farinha de trigo
-    200 ml de leite
-    5 g de açúcar
-    250 g de farinha de trigo
-    1 ovo batido
-    5 ml de essência de baunilha
-    3 g de sal
-    60 ml de leite
-    50 g de margarina
-    1 colher de sopa de cacau em pó
+    12 g de fermento biológico seco
+    48 g de farinha de trigo
+    400 ml de leite
+    10 g de açúcar
+    500 g de farinha de trigo
+    2 ovos batidos
+    10 ml de essência de baunilha
+    6 g de sal
+    120 ml de leite
+    100 g de margarina
+    2 colheres de sopa de cacau em pó
 
 MODO DE PREPARO
     1° OPÇÃO DE MASSA
-        Quebrar os ovos em um copo de medida e completar com o leite até a marca de 250 ml.
+        Quebrar os ovos em um copo de medida e completar com o leite até a marca de 500 ml.
 
         Misturar a margarina, o açúcar, a farinha e o fermento e sovar a massa.
 
-        Deixar em repo6543uso por cerca de 15 minutos.
+        Deixar em repouso por cerca de 30 minutos.
 
         Abrir a massa com a ajuda de um rolo e cortar as rosquinhas usando 2 copos de tamanhos diferentes (eu usei 1 copo americano e 1 copo de cachaça).
 
@@ -48,7 +48,7 @@ MODO DE PREPARO
 
         Misture e reserve até dobrar de tamanho
 
-        Junte essa mistura à farinha de trigo (259 g)
+        Junte essa mistura à farinha de trigo (518 g)
 
         Misture
 

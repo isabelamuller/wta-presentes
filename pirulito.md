@@ -1,9 +1,9 @@
 INGREDIENTES
-    200 g de chocolate branco
-    200 g de chcolate ao leite
+    400 g de chocolate branco
+    400 g de chcolate ao leite
     confeitos a gosto
-    100 g de chocolate branco
-    1 palito
+    200 g de chocolate branco
+    2 palitos
 
 MODO DE PREPARO
     Derreta o chocolate branco e o ao leite.

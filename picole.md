@@ -1,20 +1,20 @@
 INGREDIENTES
     Picolé:
-        2 caixas de creme de leite
-        1 lata de leite condensado
-        3/4 de xícara de leite em pó
-        100g de cacau em pó
+        4 caixas de creme de leite
+        2 latas de leite condensado
+        3/2 de xícara de leite em pó
+        200g de cacau em pó
     Calda:
-        500 g de chocolate ao leite
+        1kg de chocolate ao leite
 
 MODO DE PREPARO
     Picolé:
 
         Em um liquidificador, bata o creme de leite junto com o leite condensado e o leite em pó
 
-        Com essa mistura, preencha uma forminha de picolé e leve ao freezer por 3 - 4 horas.
+        Com essa mistura, preencha uma forminha de picolé e leve ao freezer por 6 - 8 horas.
 
-        Depois de desenformar, volte os picolés ao freezer por mais 10 minutos.
+        Depois de desenformar, volte os picolés ao freezer por mais 20 minutos.
 
     Calda:
 
@@ -22,7 +22,7 @@ MODO DE PREPARO
 
     Montagem:
 
-        Após os 10 minutos no freezer, mergulhe os picolés no chocolate, de maneira que ele cubra todo o picolé.
+        Após os 20 minutos no freezer, mergulhe os picolés no chocolate, de maneira que ele cubra todo o picolé.
 
         Em uma forma, com papel-manteiga, apoie os picolés com a calda e leve ao freezer até endurecer.
 

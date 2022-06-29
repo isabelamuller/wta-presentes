@@ -1,12 +1,12 @@
 Ingredientes
 
-    1 colher (sopa) rasa de cacau em pó
+    2 colheres (sopa) rasa de cacau em pó
 
-    1 colher (sopa) de óleo de coco líquido
+    2 colheres (sopa) de óleo de coco líquido
 
-    1 colher (sopa) de melado de cana (melhor para a consistência, mas pode usar agave, maple ou néctar de coco)
+    2 colheres (sopa) de melado de cana (melhor para a consistência, mas pode usar agave, maple ou néctar de coco)
 
-    10g de manteiga de cacau
+    20g de manteiga de cacau
 
 Compartilhe: Whatsapp Facebook Twitter Pinterest
 Modo de Preparo após a publicidade

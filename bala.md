@@ -1,13 +1,13 @@
 BALA:
-    1 lata de leite condensado
-    100 g de coco ralado sem açúcar
-    1 colher (sobremesa) de margarina
-    5 gotas de corante azul
+    2 latas de leite condensado
+    200 g de coco ralado sem açúcar
+    2 colheres (sobremesa) de margarina
+    10 gotas de corante azul
 
 CALDA:
-    1 xícara (chá) de açúcar
-    3 colheres (sopa) cheias de vinagre branco (de álcool)
-    2 gotas de essência de baunilha
+    2 xícaras (chá) de açúcar
+    6 colheres (sopa) cheias de vinagre branco (de álcool)
+    4 gotas de essência de baunilha
 
 MODO DE PREPARO
     Coloque o leite condensado, o coco e a margarina em uma panela.
